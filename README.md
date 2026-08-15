@@ -11,8 +11,8 @@ Implementación y seguimiento de estrategias.
 Orientación a resultados y rentabilidad.
 Análisis y seguimiento del cumplimiento de objetivos.
 Formación y desarrollo de líderes.
-🧠 Habilidades
 
+🧠 Habilidades
 Liderazgo
 Negociación
 Pensamiento analítico
