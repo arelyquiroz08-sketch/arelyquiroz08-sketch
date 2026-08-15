@@ -1,16 +1,20 @@
-## Hi there 👋
-
-<!--
-**arelyquiroz08-sketch/arelyquiroz08-sketch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+CV — README
+👤 Perfil Profesional
+Profesional con experiencia estratégica, con sólida capacidad en la planificación, implementación y seguimiento de estrategias empresariales, orientadas al cumplimiento de objetivos, generación de resultados y mejora de la rentabilidad.
+💼 Experiencia
+Estrategia Empresarial
+Planificación de estrategias empresariales.
+Implementación y seguimiento de estrategias.
+Orientación a resultados y rentabilidad.
+Análisis y seguimiento del cumplimiento de objetivos.
+Formación y desarrollo de líderes.
+🧠 Habilidades
+Liderazgo
+Negociación
+Pensamiento analítico
+Formación de líderes
+Planeación estratégica
+Orientación a resultados
+Enfoque en rentabilidad
+🎯 Enfoque Profesional
+Transformar estrategias en resultados mediante liderazgo, análisis y una visión orientada al crecimiento y la rentabilidad empresarial.
