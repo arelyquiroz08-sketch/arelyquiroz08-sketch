@@ -1,6 +1,6 @@
 CV — README
 👤 Perfil Profesional
-Estrella Areli Quiroz Rinconcillo nací 
+Estrella Areli Quiroz Rinconcillo 
 Estudiante de negocios internacionales con conocimientos en comercio exterior logística y marketing Internacional me destaco por ser una persona organizada y responsable 
 Profesional con experiencia estratégica, con sólida capacidad en la planificación, implementación y seguimiento de estrategias empresariales, orientadas al cumplimiento de objetivos, generación de resultados y mejora de la rentabilidad.
 💼 Experiencia
