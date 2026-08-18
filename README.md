@@ -1,25 +1,60 @@
-Estrella Areli Quiroz Rinconcillo 
-👤 Perfil Profesional 
-Estudiante de negocios internacionales con conocimientos en comercio exterior logística y marketing Internacional me destaco por ser una persona organizada y responsable 
+Estrella Areli Quiroz Rinconcillo
 
-Profesional con experiencia estratégica, con sólida capacidad en la planificación, implementación y seguimiento de estrategias empresariales, orientadas al cumplimiento de objetivos, generación de resultados y mejora de la rentabilidad.
+Licenciatura en Negocios Internacionales
 
-💼 Experiencia
-Estrategia Empresarial
-Planificación de estrategias empresariales.
-Implementación y seguimiento de estrategias.
-Orientación a resultados y rentabilidad.
-Análisis y seguimiento del cumplimiento de objetivos.
-Formación y desarrollo de líderes.
+---
 
-🧠 Habilidades
-Liderazgo
-Negociación
-Pensamiento analítico
-Formación de líderes
-Planeación estratégica
-Orientación a resultados
-Enfoque en rentabilidad
+👩‍💼 Perfil profesional
 
-🎯 Enfoque Profesional
-Transformar estrategias en resultados mediante liderazgo, análisis y una visión orientada al crecimiento y la rentabilidad empresarial.
+Estudiante de Negocios Internacionales con conocimientos en comercio exterior, logística y marketing internacional. Destacada por mi capacidad de organización, trabajo en equipo y adaptación en diversos proyectos académicos y laborales. Con actitud proactiva y visión estratégica orientada al cumplimiento de objetivos.
+
+---
+
+💼 Experiencia laboral
+
+Auxiliar Administrativo — Mega Plast
+
+- Elaboración y actualización de reportes administrativos.
+- Captura y seguimiento de pedidos.
+- Apoyo en estrategias orientadas a incrementar las ventas.
+- Organización y gestión de información administrativa.
+
+Recepcionista — Gimnasio MGS
+
+- Atención y servicio al cliente.
+- Promoción de servicios y actividades adicionales.
+- Apoyo en ventas y actualización de membresías.
+- Orientación a clientes sobre promociones y servicios disponibles.
+
+---
+
+🛠️ Habilidades
+
+- Comunicación efectiva
+- Organización
+- Proactividad
+- Visión estratégica
+- Trabajo en equipo
+
+---
+
+🎓 Formación académica
+
+Universidad Privada del Estado de México
+
+Licenciatura en Negocios Internacionales
+
+---
+
+🌎 Áreas de interés
+
+- Comercio exterior
+- Logística internacional
+- Marketing internacional
+- Administración
+- Estrategia empresarial
+
+---
+
+«Estrella Areli Quiroz Rinconcillo
+Estudiante de Negocios Internacionales | Comercio Exterior | Logística | Marketing Internacional»
